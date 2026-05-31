@@ -3,6 +3,7 @@
 $\qquad\color{red}{\text{❝ Death isn’t kind.}}$  
 $\qquad\color{red}{\text{It’s dark and black and as far as you…}}$  
 $\qquad\color{red}{\text{As far as you can see you’re all alone.}}$  
-$\qquad\color{red}{\text{There’s no one else...ㅤㅤBut it's not much different from life. ❞}}$
+$\qquad\color{red}{\text{There’s no one else...}}$
+$\qquad\color{red}{\text{But it's not much different from life. ❞}}$  
 
 <br clear="left" />
