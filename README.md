@@ -1,9 +1,8 @@
-<img width="499" height="270" alt="art girl GIF" src="https://github.com/user-attachments/assets/bd08dc24-85d4-4781-ad05-0fb167cd1b46" align="left" />
+<img width="500" height="253" alt="Style these dreamy mindset reminder tips that make everything look instantly polished designed to feel inspiring useful and easy to save and - Pin-6473993205136828" src="https://github.com/user-attachments/assets/af0a0e59-8646-4699-a8f6-06760a7153ee" align="left" />
 
-$\qquad\color{red}{\text{❝ Death isn’t kind.}}$  
-$\qquad\color{red}{\text{It’s dark and black and as far as you…}}$  
-$\qquad\color{red}{\text{As far as you can see you’re all alone.}}$  
-$\qquad\color{red}{\text{There’s no one else...}}$
-$\qquad\color{red}{\text{But it's not much different from life. ❞}}$  
+$\qquad\color{red}{\text{❝ Some people keep talking}}$  
+$\qquad\color{red}{\text{because they have nothing to say.}}$  
+$\qquad\color{red}{\text{Some people keep quiet}}$  
+$\qquad\color{red}{\text{because they have too much to say. ❞}}$  
 
 <br clear="left" />
